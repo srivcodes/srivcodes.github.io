@@ -1,3 +1,3 @@
 ## srivicodes.github.io
 
-Just like how every movie needs a good trailer, every resume needs a profile. This is my profile.
+Just like how every movie needs a good trailer, every individual needs a profile. This is my profile.
